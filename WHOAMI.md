@@ -1,0 +1,5 @@
+- yo wazzup
+- sub to my youtubes hellozi and skeef lmao
+- c and its variations is my game
+- my disc is Skeef#0323
+- so yeah, have fun with my shit
